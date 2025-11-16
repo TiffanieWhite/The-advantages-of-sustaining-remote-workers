@@ -1,2 +1,2 @@
-# The-Productivity-of-Remote-vs-in-office-Workers
+# The-advantages-of-sustaining-remote-workers
 I recently came across an article stating that there are mandates going back into place to dismantle all remote workers. This affects me personally as I have an autistic son and a son that has a mild developmental delay. I have family, but with school hours being within their work hours and my children technically being too old for daycare (ages 11 and 15 (autistic, and currently attending online school at home)...this is devastating to my household. My hope is to help persuade some companies to continue to offer remote career opportunities by showing the financial advantage, the difference in employee productivity
